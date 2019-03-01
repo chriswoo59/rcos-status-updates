@@ -12,4 +12,4 @@
 
 ## Notes
 
-> So many videos
+> Seemed to have missed one of the weekly reports rip
